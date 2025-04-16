@@ -1,0 +1,1 @@
+# Quarde nesta pasta somente programadas de computador
